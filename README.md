@@ -1,6 +1,6 @@
-# ❤ Hi Guys! ❤
+# ❤ Hello Everyone ❤
 ## Welcome To My Channel 🥰
-#### I'm ......
+#### I'm listening to music .... 🎧 
 This is jdjejrjrjrn
 
 <a href="https://youtube.com/@binhith"><img src="https://ik.imagekit.io/binhith/Font_Awesome/youtube.png?ik-sdk-version=javascript-1.4.3&updatedAt=1673038437300" width="32" height="32"></a> &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp; &nbsp;
